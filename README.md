@@ -13,7 +13,7 @@ Hello! my name is MAMUDU I'm a dedicated freelancer with over 10 years of experi
 
 ## How to Reach Me
 
-You can find my services and contact me through my [Fiverr profile](https://www.fiverr.com/visit/?bta=fiverraffiliates). I'm always ready to help you communicate effectively and professionally.
+You can find my services and contact me through my [Fiverr profile](https://www.fiverr.com/visit/?bta=1006895&brand=fiverraffiliates). I'm always ready to help you communicate effectively and professionally.
 
 Feel free to browse through my portfolio and see the quality of work I deliver.
 
