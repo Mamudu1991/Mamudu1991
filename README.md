@@ -2,7 +2,7 @@
 
 ## About Me
 
-Hello! I'm a dedicated freelancer with over 10 years of experience specializing in proofreading and editing. My expertise includes refining emails, messages, presentations, and various documents in English to ensure clarity, precision, and professionalism.
+Hello! my name is MAMUDU I'm a dedicated freelancer with over 10 years of experience specializing in proofreading and editing. My expertise includes refining emails, messages, presentations, and various documents in English to ensure clarity, precision, and professionalism.
 
 ## What I Offer
 
@@ -25,8 +25,5 @@ Feel free to browse through my portfolio and see the quality of work I deliver.
 
 ## Let's Connect
 
-If you need top-notch proofreading and editing services, don't hesitate to reach out. I look forward to working with you and helping you achieve your communication goals.
-
----
-
-MAMUDU
+If you need top-notch proofreading and editing services, don't hesitate to reach out. I look forward to working with you and helping you achieve your communication goal.
+MAMUDU K
